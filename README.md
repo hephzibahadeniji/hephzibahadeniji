@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on fun health research projects
 - 📫 To reach me send an email to hephzibah.adeniji@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love exploring different subjects and I could tell you a fun fact about anuthing
+- ⚡ Fun fact: I love exploring different subjects and I could tell you a fun fact about anything
 
 <!---
 hephzibahadeniji/hephzibahadeniji is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
